@@ -1,0 +1,1 @@
+i made a ai now this ai is called virul ai its named after me virul900 this ai focus on functionality i am trying to become rich at a young age this will be released to google play store soon its currently in devolopment
